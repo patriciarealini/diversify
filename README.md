@@ -2,8 +2,9 @@
 #### a list of amazing people in tech that you can follow on twitter
 
 
-made by [@patriciarealini](https://twitter.com/patriciarealini)
 _this list is presented in alphabetical order_
+
+made by [@patriciarealini](https://twitter.com/patriciarealini)
 
 
 [@adampowers](https://twitter.com/adampowers)
