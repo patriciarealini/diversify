@@ -88,7 +88,7 @@ made by [@patriciarealini](https://twitter.com/patriciarealini) with help from
 
 [@joamettegil](https://twitter.com/JoametteGil)
 
-[@](https://twitter.com/_jokuge)
+[@_jokuge](https://twitter.com/_jokuge)
 
 [@jostruitt](https://twitter.com/jostruitt)
 
