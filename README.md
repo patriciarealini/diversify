@@ -1,7 +1,6 @@
 # diversify
+#### a list of amazing people in tech that you can follow on twitter
 
-
-## a list of amazing people in tech that you can follow on twitter
 
 made by [@patriciarealini](https://twitter.com/patriciarealini)
 
