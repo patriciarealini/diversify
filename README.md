@@ -24,6 +24,8 @@ made by [@patriciarealini](https://twitter.com/patriciarealini) with help from
 
 [@aredridel](https://twitter.com/aredridel)
 
+[@arf_22](https://twitter.com/Arf_22)
+
 [@belaurie](https://twitter.com/beLaurie)
 
 [@bitchwhocodes](https://twitter.com/bitchwhocodes)
@@ -128,6 +130,10 @@ made by [@patriciarealini](https://twitter.com/patriciarealini) with help from
 
 [@morganastra](https://twitter.com/morganastra)
 
+[@mujjahiid](https://twitter.com/Mujjahiid)
+
+[@murtz_abidi](https://twitter.com/murtz_abidi)
+
 [@mxdarkwater](https://twitter.com/mxdarkwater)
 
 [@mybluewristband](https://twitter.com/mybluewristband)
@@ -168,9 +174,13 @@ made by [@patriciarealini](https://twitter.com/patriciarealini) with help from
 
 [@sailorhg](https://twitter.com/sailorhg)
 
+[@saffadkhan](https://twitter.com/saffadkhan)
+
 [@sandimetz](https://twitter.com/sandimetz)
 
 [@sarahjeong](https://twitter.com/sarahjeong)
+
+[@sarasoueidan](https://twitter.com/SaraSoueidan)
 
 [@sareh88](https://twitter.com/Sareh88)
 
@@ -187,6 +197,8 @@ made by [@patriciarealini](https://twitter.com/patriciarealini) with help from
 [@vaidehijoshi](https://twitter.com/vaidehijoshi)
 
 [@xychelsea](https://twitter.com/xychelsea)
+
+[@zahrataiba](https://twitter.com/zahrataiba)
 
 [@zeigenvector](https://twitter.com/zeigenvector)
 
