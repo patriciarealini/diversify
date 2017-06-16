@@ -4,7 +4,8 @@
 
 _this list is presented in alphabetical order_
 
-made by [@patriciarealini](https://twitter.com/patriciarealini)
+made by [@patriciarealini](https://twitter.com/patriciarealini) with help from 
+[@aredridel](https://twitter.com/aredridel), [@buritica](https://twitter.com/buritica), [@itsmisscs](https://twitter.com/itsmisscs), [@maybekatz](https://twitter.com/maybekatz), [@paladique](https://twitter.com/paladique), and [@sareh88](https://twitter.com/Sareh88).
 
 
 [@adampowers](https://twitter.com/adampowers)
@@ -117,9 +118,9 @@ made by [@patriciarealini](https://twitter.com/patriciarealini)
 
 [@lynncyrin](https://twitter.com/lynncyrin)
 
-[@maybekatz](https://twitter.com/maybekatz)
-
 [@maria_fibonacci](https://twitter.com/maria_fibonacci)
+
+[@maybekatz](https://twitter.com/maybekatz)
 
 [@mcclure111](https://twitter.com/mcclure111)
 
