@@ -1,4 +1,4 @@
-# diversify
+# :sparkles: diversify :sparkles:
 #### a list of amazing people in tech that you can follow on twitter
 
 
